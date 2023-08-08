@@ -25,3 +25,17 @@ Eternal Justice had prepared such a place for the rebellious. Their prison was o
 There, Satan soon discerned the companions of his fall, overwhelmed with floods and whirlwinds of tempestuous fire. Weltering by his side was one next to him in power and crime, long afterward known in Palestine and named Beelzebub.
 
 To Beelzebub, the arch-enemy, then in Heaven called Satan, boldly broke the horrid silence and thus began to speak.
+
+~
+
+If you are indeed the one I know, how you have fallen! How changed you are from the being who once shone with transcendent brightness in the happy realms of light, outshining myriads of bright beings. If you are he who once joined me in mutual agreement, united in thoughts, counsels, and hopes, and shared the risk in our glorious enterprise, now misery has joined us in equal ruin. Look into what pit we've fallen from such heights! God's thunder has proven so much stronger.
+
+Yet, despite knowing the force of His dire arms, I do not repent or change, though my outward appearance has changed. My fixed mind and high disdain, arising from a sense of injured merit, raised me to contend with the mightiest. I brought along an innumerable force of armed spirits that dared to oppose His reign, preferring me. We opposed His utmost power with our adverse power in a dubious battle on the plains of Heaven, shaking His throne.
+
+What though we have lost the field? All is not lost. We still possess the unconquerable will, the study of revenge, immortal hate, and courage never to submit or yield. We won't be overcome. That glory will never be extorted from me by His wrath or might. To bow and beg for grace, to deify His power—He who so recently doubted His empire because of our force—would be low indeed, an ignominy and shame beneath our downfall.
+
+Since the strength of gods and this celestial substance cannot fail, and since we've learned from this great event and advanced in foresight, we may now resolve with more successful hope to wage an eternal war, irreconcilable, against our grand foe. He now triumphs, and in his excess of joy, he alone holds the tyranny of Heaven.
+
+~
+
+
