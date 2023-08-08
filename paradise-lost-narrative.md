@@ -38,4 +38,4 @@ Since the strength of gods and this celestial substance cannot fail, and since w
 
 ~
 
-
+Thus spoke the apostate angel, although in pain, boasting aloud but racked with deep despair. His bold comrade soon answered him.
