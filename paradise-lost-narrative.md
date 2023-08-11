@@ -1,29 +1,28 @@
 ## Book 1
 
-In the beginning, humanity's inaugural act of defiance came when they tasted the fruit of the Forbidden Tree. This one act, this mortal taste, ushered in death and unfathomable sorrow, marking the loss of Eden's divine grace. But there remains a glimmer of hope—believing that a supreme Being, Jesus Christ, might one day restore us to our rightful place in paradise.
+At the beginning, humanity defied God by tasting the Forbidden Tree's fruit. This act brought death and sorrow, casting us out of Eden. Yet hope remains in Christ's promise to restore us to paradise.
 
-I invoke the heavenly Muse to narrate this tale, drawing upon the same divine inspiration that once graced the secluded peaks of Oreb and Sinai. It was this muse that guided Moses, the first shepherd of the chosen, in teaching about the genesis of the heavens and Earth from chaos. If the Muse finds it more fitting, I would gladly draw inspiration from the sanctified slopes of Sion Hill or the gentle currents of Siloa's brook, situated close to God's Oracle, to enhance my ambitious tale.
+I seek the Muse's guidance in this retelling, the same that inspired Moses on Oreb and Sinai. If the Muse wills, I'll also draw from Sion Hill or Siloa's brook, near God's Oracle.
 
-With this narrative, my aim is to venture beyond traditional poetic horizons, exploring themes previously untouched in prose or rhyme. I turn to you, Holy Spirit, the epitome of purity and righteousness, surpassing all earthly sanctuaries. Guide me, for your knowledge is boundless, and from the very inception, you've watched over creation with your majestic wings spread wide, reminiscent of a dove nurturing life over a boundless chasm.
+In this story, I aim to explore themes beyond traditional poetry. I ask the Holy Spirit for guidance, who has watched over creation since its start.
 
-Illuminate my obscured perceptions, elevate my humble thoughts, and bolster my endeavors. In doing so, I aspire to proclaim God's unending providence and, through this profound discourse, endeavor to elucidate God's ways to humanity.
+Illuminate my understanding, elevate my thoughts, and strengthen my intent. Through this, I hope to explain God's ways to mankind.
 
 ~
 
-Tell me, for Heaven hides nothing from your view, not even the deep tract of Hell. What cause moved our grandparents, Adam and Eve, who were in such a happy state and so highly favored by Heaven, to fall away from their Creator? Why did they transgress His will for just one restriction when they were lords of the rest of the world? Who first seduced them to that foul revolt?
+Reveal to me, for the heavens conceal nothing from your sight—not even the deepest corridors of Hell. What drove our forebearers, Adam and Eve, from their blissful state and divine favor, leading them to betray their Creator? Why would they defy His singular command when the world was theirs to command? Who was the instigator of such a heinous act?
 
-It was the infernal serpent, Satan, whose guile, stirred up by envy and revenge, deceived the mother of mankind. His pride had cast him out from Heaven, along with his host of rebel angels. With their help, he aspired to set himself in glory above his peers and hoped to have equaled the Most High, if he opposed Him. With ambitious aims, he raised an impious war against the throne and monarchy of God in Heaven, proud in battle, but with vain attempt.
+It was none other than the crafty serpent, Satan. Consumed by jealousy and vengeance, he beguiled humanity's matriarch. His unchecked arrogance was his undoing, resulting in his banishment from Heaven along with his army of rebellious angels. Driven by a desire to surpass all others, he audaciously sought to rival the Almighty. His blasphemous ambitions instigated a war against God's celestial reign. Fierce in combat, yet his efforts were in vain.
 
-The Almighty Power hurled him headlong, flaming from the ethereal sky, with hideous ruin and combustion, down to bottomless perdition. There he was to dwell in adamantine chains and penal fire for daring to defy the Omnipotent to arms.
-For nine times the space that measures day and night to mortal men, he lay vanquished with his horrid crew, rolling in the fiery gulf, confounded, though immortal. But his doom reserved him for more wrath. Tormented by thoughts of lost happiness and lasting pain, he threw around his baleful eyes, witnessing huge affliction and dismay, mixed with obdurate pride and steadfast hate.
+With unmatched might, God cast him out, sending him plummeting from the heavens, aflame, destined for an abyss of eternal damnation. Bound by unbreakable chains and tormented by fire, this was his penalty for challenging the Supreme Being. For a duration that seemed like an eternity to mortals, he and his malevolent horde were ensnared in a fiery chasm, though undying. Yet, his fate harbored even greater suffering. Haunted by memories of lost paradise and perpetual agony, he scanned his surroundings with eyes filled with anguish, pride, and unyielding loathing.
 
-As far as any angel can see, he surveyed the dismal, desolate, and wild dungeon that burned like a great furnace. Yet from those flames came no light, only darkness that could somehow be seen, serving only to reveal sights of woe, regions of sorrow, and mournful shadows where peace and rest can never dwell. Hope never finds its way to this place; only endless torture exists here, along with a fiery deluge fed by ever-burning sulfur, never consumed.
+From his vantage point, he beheld a desolate prison, ablaze like a vast furnace. Yet, these flames shed no light, only an observable darkness that revealed only misery, sorrow, and desolation— a place devoid of peace or reprieve. Here, hope is a stranger, replaced by ceaseless torment and an inferno, ever-raging, never extinguished.
 
-Eternal Justice had prepared such a place for the rebellious. Their prison was ordained in utter darkness, their portion set as far removed from God and the light of Heaven as from the center thrice to the utmost pole. How unlike the place from whence they fell!
+This infernal prison, a manifestation of divine retribution, awaited the defiant. Its location, shrouded in complete darkness, was as distant from God and Heaven's radiance as conceivable. What a stark contrast to their former heavenly abode!
 
-There, Satan soon discerned the companions of his fall, overwhelmed with floods and whirlwinds of tempestuous fire. Weltering by his side was one next to him in power and crime, long afterward known in Palestine and named Beelzebub.
+In this bleak realm, Satan recognized his fellow fallen angels, besieged by tempestuous flames. Close by, one who was second only to him in might and infamy, later recognized in the lands of Palestine as Beelzebub.
 
-To Beelzebub, the arch-enemy, then in Heaven called Satan, boldly broke the horrid silence and thus began to speak.
+Summoning the courage to shatter the oppressive silence, Satan, the prime adversary once revered in Heaven, addressed Beelzebub.
 
 
 ~
