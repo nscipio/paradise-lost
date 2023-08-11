@@ -16,11 +16,7 @@ The fallen angel spoke with defiant pride, even as deep despair tormented him. H
 
 ~
 
-O Prince, O Chief of many-throned powers that led the embattled seraphim to war under your guidance, fearless in dreadful deeds, you endangered Heaven's eternal King and put His high supremacy to the test, whether upheld by strength, chance, or fate. Too well I see and regret the dire event that, with sad overthrow and foul defeat, has lost us Heaven. All this mighty host is laid low in horrible destruction, as far as gods and heavenly essences can perish. Yet the mind and spirit remain invincible, and vigor soon returns, though all our glory and happy state are swallowed up in endless misery.
-
-But what if He, our Conqueror, whom I now must believe is Almighty (since no less than such could have overpowered our force), has left us our spirit and strength entire? Perhaps it is so that we may strongly suffer and endure our pains, to satisfy His vengeful wrath. Or perhaps we might serve Him mightily as His slaves by the right of war, whether to work in fire here in the heart of Hell, or to do His errands in the gloomy deep. What can it then avail, though we still feel our strength undiminished and our eternal being, to undergo eternal punishment?
-
-To this, the Arch-fiend replied with swift words.
+"O leader of the mighty, you who bravely led us in war against Heaven's eternal ruler, challenging his supreme authority. The sad outcome is clear — our defeat has cost us Heaven. This vast army lies defeated, but our minds and spirits remain unbroken. Though we've lost our glory and joy, we're now mired in endless suffering. If our conqueror, evidently Almighty, has preserved our spirit and strength, is it merely to endure his wrath? Or might we serve him in some greater capacity? But even with our undiminished strength and eternal existence, what good is it if we're doomed to eternal torment?" To this, the arch-fiend quickly responded.
 
 ~
 
