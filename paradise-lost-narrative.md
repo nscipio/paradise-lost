@@ -1,12 +1,12 @@
 ## Book 1
 
-In the beginning, man's first act of disobedience was to taste the fruit of that Forbidden Tree—a mortal taste that brought death and all our sorrow into the world, along with the loss of Eden's grace. Yet, hope endures that one greater Being, Jesus Christ, may restore us and regain our blissful seat in paradise.
+In the beginning, humanity's inaugural act of defiance came when they tasted the fruit of the Forbidden Tree. This one act, this mortal taste, ushered in death and unfathomable sorrow, marking the loss of Eden's divine grace. But there remains a glimmer of hope—believing that a supreme Being, Jesus Christ, might one day restore us to our rightful place in paradise.
 
-I call upon the heavenly Muse to sing this story, the same divine inspiration that once touched the secret peaks of Oreb and Sinai and inspired Moses, the shepherd who first taught the chosen people. It was Moses who explained how the heavens and Earth rose out of chaos. If the Muse prefers, I will invoke the inspiration of Sion Hill's sacred slopes or the gentle flow of Siloa's brook, near the Oracle of God, to aid my adventurous song.
+I invoke the heavenly Muse to narrate this tale, drawing upon the same divine inspiration that once graced the secluded peaks of Oreb and Sinai. It was this muse that guided Moses, the first shepherd of the chosen, in teaching about the genesis of the heavens and Earth from chaos. If the Muse finds it more fitting, I would gladly draw inspiration from the sanctified slopes of Sion Hill or the gentle currents of Siloa's brook, situated close to God's Oracle, to enhance my ambitious tale.
 
-My intention is to soar above the traditional poetic realms, pursuing themes unattempted in prose or rhyme. I appeal especially to you, Holy Spirit, who values purity and righteousness above all earthly temples. Instruct me, for you know all things, and you were present from the beginning with mighty wings outspread, like a dove brooding over the vast abyss, making it pregnant with creation.
+With this narrative, my aim is to venture beyond traditional poetic horizons, exploring themes previously untouched in prose or rhyme. I turn to you, Holy Spirit, the epitome of purity and righteousness, surpassing all earthly sanctuaries. Guide me, for your knowledge is boundless, and from the very inception, you've watched over creation with your majestic wings spread wide, reminiscent of a dove nurturing life over a boundless chasm.
 
-Enlighten what is dark in me, raise what is low, and support my efforts so that I may assert God's eternal providence. Through this great argument, I seek to justify the ways of God to men.
+Illuminate my obscured perceptions, elevate my humble thoughts, and bolster my endeavors. In doing so, I aspire to proclaim God's unending providence and, through this profound discourse, endeavor to elucidate God's ways to humanity.
 
 ~
 
