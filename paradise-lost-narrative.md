@@ -12,7 +12,7 @@ If you are who I think, how you've changed! Once radiant in the realm of light, 
 
 ~
 
-Thus spoke the fallen angel, though in pain, vaunting aloud, but racked with deep despair. His bold comrade soon answered him.
+The fallen angel spoke with defiant pride, even as deep despair tormented him. His audacious counterpart quickly responded.
 
 ~
 
