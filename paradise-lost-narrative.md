@@ -1,4 +1,4 @@
-# "Paradise Reimagined"
+# Paradise Lost
 ### by John Milton, Adapted by NM Scipione
 
 ## Book I
