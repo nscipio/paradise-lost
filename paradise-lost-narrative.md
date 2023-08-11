@@ -1,12 +1,6 @@
 ## Book 1
 
-At the beginning, humanity defied God by tasting the Forbidden Tree's fruit. This act brought death and sorrow, casting us out of Eden. Yet hope remains in Christ's promise to restore us to paradise.
-
-I seek the Muse's guidance in this retelling, the same that inspired Moses on Oreb and Sinai. If the Muse wills, I'll also draw from Sion Hill or Siloa's brook, near God's Oracle.
-
-In this story, I aim to explore themes beyond traditional poetry. I ask the Holy Spirit for guidance, who has watched over creation since its start.
-
-Illuminate my understanding, elevate my thoughts, and strengthen my intent. Through this, I hope to explain God's ways to mankind.
+Man's first disobedience, a taste of the forbidden tree, unleashed death and despair, distancing us from Eden. In anticipation, we look to a greater Man for restoration. I call upon the Muse, who once whispered atop Oreb and Sinai, guiding the shepherd to narrate the world's emergence from chaos. If Sion Hill or Siloa's brook, by God's oracle, resonates more with you, from there I seek your guidance. With this grand narrative, aiming to tread uncharted terrains, I implore the Holy Spirit, valuing a pure heart over grand temples, to enlighten and elevate me. My purpose is to grasp and articulate God's ways to Man. Reveal the reason our forebears, favored by Heaven, went against their Creator for one prohibition. Who was their tempter? The serpent, filled with envy and thirst for revenge, misled the mother of all. His pride, after being cast out from Heaven with his rebellious kin, aspired to challenge the Most High, scheming against His divine reign.
 
 ~
 
