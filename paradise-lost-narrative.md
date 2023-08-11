@@ -78,3 +78,7 @@ The masses, in admiration, entered this monument, praising both the structure an
 Soon, winged messengers proclaimed a grand council to be held in Pandaemonium, the capital of Satan and his peers. The call went out, and from every corner, the most esteemed demons arrived in droves. The vast hall, reminiscent of a grandiose battlefield, became crowded, the air filled with the rustling of wings. It was like witnessing a hive bustling with bees during springtime.
 
 Despite the crowd, a signal was given, and the spirits, who once appeared gigantic, shrunk to diminutive sizes, similar to the tales of fairies and elves. Yet, even as many settled, the great lords, the Seraphim and Cherubim, held their majestic forms. They sat in a secluded meeting, surrounded by countless lesser spirits on golden seats. After a brief pause, the momentous council commenced.
+
+---
+
+_Licensed under Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International (CC BY-NC-ND 4.0)._
