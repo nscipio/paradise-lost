@@ -4,31 +4,11 @@ Man's first disobedience, a taste of the forbidden tree, unleashed death and des
 
 ~
 
-Reveal to me, for the heavens conceal nothing from your sight—not even the deepest corridors of Hell. What drove our forebearers, Adam and Eve, from their blissful state and divine favor, leading them to betray their Creator? Why would they defy His singular command when the world was theirs to command? Who was the instigator of such a heinous act?
-
-It was none other than the crafty serpent, Satan. Consumed by jealousy and vengeance, he beguiled humanity's matriarch. His unchecked arrogance was his undoing, resulting in his banishment from Heaven along with his army of rebellious angels. Driven by a desire to surpass all others, he audaciously sought to rival the Almighty. His blasphemous ambitions instigated a war against God's celestial reign. Fierce in combat, yet his efforts were in vain.
-
-With unmatched might, God cast him out, sending him plummeting from the heavens, aflame, destined for an abyss of eternal damnation. Bound by unbreakable chains and tormented by fire, this was his penalty for challenging the Supreme Being. For a duration that seemed like an eternity to mortals, he and his malevolent horde were ensnared in a fiery chasm, though undying. Yet, his fate harbored even greater suffering. Haunted by memories of lost paradise and perpetual agony, he scanned his surroundings with eyes filled with anguish, pride, and unyielding loathing.
-
-From his vantage point, he beheld a desolate prison, ablaze like a vast furnace. Yet, these flames shed no light, only an observable darkness that revealed only misery, sorrow, and desolation— a place devoid of peace or reprieve. Here, hope is a stranger, replaced by ceaseless torment and an inferno, ever-raging, never extinguished.
-
-This infernal prison, a manifestation of divine retribution, awaited the defiant. Its location, shrouded in complete darkness, was as distant from God and Heaven's radiance as conceivable. What a stark contrast to their former heavenly abode!
-
-In this bleak realm, Satan recognized his fellow fallen angels, besieged by tempestuous flames. Close by, one who was second only to him in might and infamy, later recognized in the lands of Palestine as Beelzebub.
-
-Summoning the courage to shatter the oppressive silence, Satan, the prime adversary once revered in Heaven, addressed Beelzebub.
-
+After waging a defiant war in Heaven, the Almighty cast Satan down in a fiery descent, condemning him to the depths of endless ruin. There, in unbreakable chains and enduring fire, he who dared challenge the Omnipotent remained. For a span far longer than nine mortal days and nights, he and his defeated army suffered in a fiery abyss, though they were undying. Amid his torment, thoughts of lost joy and eternal pain agonized him. His gaze, filled with immense distress and unwavering hatred, surveyed the bleak, wild wasteland around him. The surroundings blazed like a vast furnace, but the flames offered no light, only a visible darkness revealing scenes of anguish. In this realm of endless sorrow and devoid of peace, hope remains elusive. Ceaseless torment and an unquenchable fiery deluge persisted. This was the justice's chosen prison for the rebels, placing them as far from God and Heaven's light as possible. This new abode starkly contrasts their former celestial home. Amidst the chaos, Satan recognizes Beelzebub, a fellow fallen angel. Now known as Satan, he breaks the oppressive silence, addressing Beelzebub with audacious words.
 
 ~
 
-If you are indeed the one I know, how you have fallen! How changed you are from the being who once shone with transcendent brightness in the happy realms of light, outshining myriads of bright beings. If you are he who once joined me in mutual agreement, united in thoughts, counsels, and hopes, and shared the risk in our glorious enterprise, now misery has joined us in equal ruin. Look into what pit we've fallen from such heights! God's thunder has proven so much stronger.
-
-Yet, despite knowing the force of His dire arms, I do not repent or change, though my outward appearance has changed. My fixed mind and high disdain, arising from a sense of injured merit, raised me to contend with the mightiest. I brought along an innumerable force of armed spirits that dared to oppose His reign, preferring me. We opposed His utmost power with our adverse power in a dubious battle on the plains of Heaven, shaking His throne.
-
-What though we have lost the field? All is not lost. We still possess the unconquerable will, the study of revenge, immortal hate, and courage never to submit or yield. We won't be overcome. That glory will never be extorted from me by His wrath or might. To bow and beg for grace, to deify His power—He who so recently doubted His empire because of our force—would be low indeed, an ignominy and shame beneath our downfall.
-
-Since the strength of gods and this celestial substance cannot fail, and since we've learned from this great event and advanced in foresight, we may now resolve with more successful hope to wage an eternal war, irreconcilable, against our grand foe. He now triumphs, and in his excess of joy, he alone holds the tyranny of Heaven.
-
+After waging a defiant war in Heaven, the Almighty cast Satan down in a fiery descent, condemning him to the depths of endless ruin. There, in unbreakable chains and enduring fire, he who dared challenge the Omnipotent remained. For a span far longer than nine mortal days and nights, he and his defeated army suffered in a fiery abyss, though they were undying. Amid his torment, thoughts of lost joy and eternal pain agonized him. His gaze, filled with immense distress and unwavering hatred, surveyed the bleak, wild wasteland around him. The surroundings blazed like a vast furnace, but the flames offered no light, only a visible darkness revealing scenes of anguish. In this realm of endless sorrow and devoid of peace, hope remains elusive. Ceaseless torment and an unquenchable fiery deluge persisted. This was the justice's chosen prison for the rebels, placing them as far from God and Heaven's light as possible. This new abode starkly contrasts their former celestial home. Amidst the chaos, Satan recognizes Beelzebub, a fellow fallen angel. Now known as Satan, he breaks the oppressive silence, addressing Beelzebub with audacious words.
 
 ~
 
