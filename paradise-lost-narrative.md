@@ -193,7 +193,7 @@ Approaching, Satan found the shadow advancing, each step resonating through Hell
 
 <p align="center">•••</p>
 
-In response, the furious creature shot back, "Are you the traitorous angel who shattered Heaven's peace and loyalty? The one who led a third of Heaven's angels in a bold revolt against the Almighty? For that, you and your followers were cast out and condemned to endure endless suffering. And yet, you dare defy and scorn me in my domain, where I rule as king. Do you think you can challenge me, your king and master? Return to your torment, deceiver. Hurry, or I'll chase you down with a scorpion's whip or strike you with this weapon, introducing you to horrors and pain you've never known."
+The creature, seething with anger, retorted, "Aren't you the fallen angel who betrayed Heaven's trust? The instigator who persuaded a third of its angels to rebel against the Divine? Because of your defiance, you and your cohorts were banished, doomed to eternal torment. Still, you challenge and mock me in my territory, where I am sovereign. Do you believe you can defy me, your ruler? Go back to your suffering, traitor. Move quickly, or I'll unleash upon you torments more terrifying than you've ever known."
 
 ---
 
