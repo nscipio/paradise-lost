@@ -1,7 +1,7 @@
 # Paradise Lost
 ### by John Milton, Adapted by NM Scipione
 
-## Book I
+## Book 1
 
 Man's first disobedience, a taste of the forbidden tree, unleashed death and despair, distancing us from Eden. In anticipation, we look to a greater Man for restoration. I call upon the Muse, who once whispered atop Oreb and Sinai, guiding the shepherd to narrate the world's emergence from chaos. If Sion Hill or Siloa's brook, by God's oracle, resonates more with you, from there I seek your guidance. With this grand narrative, aiming to tread uncharted terrains, I implore the Holy Spirit, valuing a pure heart over grand temples, to enlighten and elevate me. My purpose is to grasp and articulate God's ways to Man. Reveal the reason our forebears, favored by Heaven, went against their Creator for one prohibition. Who was their tempter? The serpent, filled with envy and thirst for revenge, misled the mother of all. His pride, after being cast out from Heaven with his rebellious kin, aspired to challenge the Most High, scheming against His divine reign.
 
@@ -200,6 +200,16 @@ In response to Satan's declaration, Chaos—the ancient Anarch embodying cosmic 
 Satan, invigorated by the prospect of finally reaching a destination, vaults upwards, cutting through the tumultuous elements that surround him. His journey is arduous, evoking the dangers faced by the Argonauts in the Bosporus and Ulysses navigating past Charybdis. Yet he perseveres, and once he breaks through, the path behind him strangely smooths over, as if by divine intent, allowing Sin and Death easier passage. This bridge extends from Hell to the edge of Earth, a gateway for malevolent spirits to tempt or torment humanity—except those shielded by divine grace.
 
 At last, the faintest hint of light emerges, signifying the boundaries of Nature and the retreat of Chaos. The tumult lessens, and Satan glides more effortlessly through the now calmer abyss. Though battered like a storm-worn ship reaching port, he finally beholds the radiant expanse of Heaven—his former home, now a bitter reminder of his fall. This celestial realm, adorned with opal towers and living sapphire, hangs adjacent to Earth, which itself appears as a small star near the Moon. Fueled by vengeful purpose, Satan hastens towards it, accursed and moving under an ill-fated sky.
+
+## Book 3
+
+O Holy Light, firstborn of Heaven or perhaps the eternal beam coexisting with God, how may I praise you without fault? God is light, and in light unapproachable He has always existed, and so have you, a radiant emanation of divine essence. You were before the Sun, before the Heavens, and at God's command, you cloaked the nascent world in darkness, wrested from the infinite void.
+
+I return to you now, having escaped the shadows of Hell, where I sang of Chaos and endless Night, guided by divine inspiration to traverse the abyss and climb back. Though I sense your life-giving luminance, my eyes, veiled by a dense mist, fail to perceive you. Yet, I continue my wanderings, frequenting the haunts of the Muses—clear springs, shaded groves, sunlit hills. In particular, I find solace in the sacred streams of Zion that nightly I visit.
+
+I don't forget those who, like me, are bound by fate—Blind Thamyris, Blind Maeonides, Tiresias, and Phineus, ancient prophets. Inspired by them, my thoughts naturally flow into harmonious verses, like a bird singing in the dark. But for me, the changing seasons bring no return of daylight or the pleasing sights of nature; I am cut off from the joyful paths of men. Thus, I pray, shine inward, O Celestial Light, illuminate my mind, dispel the fog, so that I may perceive and narrate things invisible to mortal sight.
+
+
 
 ---
 
