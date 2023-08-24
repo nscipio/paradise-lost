@@ -193,7 +193,13 @@ Approaching, Satan found the shadow advancing, each step resonating through Hell
 
 <p align="center">•••</p>
 
-The creature, seething with anger, retorted, "Aren't you the fallen angel who betrayed Heaven's trust? The instigator who persuaded a third of its angels to rebel against the Divine? Because of your defiance, you and your cohorts were banished, doomed to eternal torment. Still, you challenge and mock me in my territory, where I am sovereign. Do you believe you can defy me, your ruler? Go back to your suffering, traitor. Move quickly, or I'll unleash upon you torments more terrifying than you've ever known."
+In response to Satan's declaration, Chaos—the ancient Anarch embodying cosmic disorder—spoke with a faltering voice and an unsettled demeanor. 'I recognize you, the archangel who recently dared to defy the King of Heaven, only to be vanquished. The cacophony of your defeat reverberated even in these depths, followed by Heaven's legions in their relentless pursuit. I hold dominion over this chaotic frontier, a realm continually weakened by internal strife, thereby diminishing the ancient power of Night. Hell was your first prison, and now another world dangles above my domain, linked to the very Heaven you were expelled from by a golden chain. If you seek passage to this new realm, the path is perilous but short. Proceed, for your journey of devastation serves my ends.
+
+<p align="center">•••</p>
+
+Satan, invigorated by the prospect of finally reaching a destination, vaults upwards, cutting through the tumultuous elements that surround him. His journey is arduous, evoking the dangers faced by the Argonauts in the Bosporus and Ulysses navigating past Charybdis. Yet he perseveres, and once he breaks through, the path behind him strangely smooths over, as if by divine intent, allowing Sin and Death easier passage. This bridge extends from Hell to the edge of Earth, a gateway for malevolent spirits to tempt or torment humanity—except those shielded by divine grace.
+
+At last, the faintest hint of light emerges, signifying the boundaries of Nature and the retreat of Chaos. The tumult lessens, and Satan glides more effortlessly through the now calmer abyss. Though battered like a storm-worn ship reaching port, he finally beholds the radiant expanse of Heaven—his former home, now a bitter reminder of his fall. This celestial realm, adorned with opal towers and living sapphire, hangs adjacent to Earth, which itself appears as a small star near the Moon. Fueled by vengeful purpose, Satan hastens towards it, accursed and moving under an ill-fated sky.
 
 ---
 
